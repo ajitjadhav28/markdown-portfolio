@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* Death
+* Inner Enginnering
+* Yayati
+* Dasbodh
+* Manache Shlok
